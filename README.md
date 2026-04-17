@@ -1,0 +1,1 @@
+# AWS-Artificial-Intelligence-Practitioner-Learning-Plan
